@@ -1,4 +1,4 @@
-# 蓝帆云怎么样？Clash机场推荐
+# 疾风云怎么样？Clash机场推荐
 
 ## 疾风云官网地址
 最新官网地址：[蓝帆云官网](https://cf.affxc.com/jfcloud/)
